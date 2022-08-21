@@ -4,6 +4,8 @@
 
 Now that we're both here, welcome! 
 
+We'll be great friends if you're  kind, ambitious, and nerdy (in that order).
+
 ### Currently, 
 * On the job hunt! Looking for  Winter 2023 software development & product management internships at mission-driven companies. 
 
@@ -12,7 +14,7 @@ Now that we're both here, welcome!
 * Building community at [UW Startups](https://www.instagram.com/uwstartups/) & sourcing companies as a Venture Partner with [Contrary Capital](https://contrary.com/). 
 
 ### What motivates me:
-🧑‍🤝‍🧑  I'm highly collaborative and love working with, learning from, and creating opportunities for others. I feel most at home when I'm surrounded with people who love to give back. 
+🧑‍🤝‍🧑  I'm highly collaborative and love working with, learning from, and creating opportunities for others. I feel most at home when I'm surrounded by people who love to give back. 
 
 🏆  Some of the work I'm most proud of includes leading [SVP Teens](https://www.svpteens.org/) and developing at [UW Blueprint](http://uwblueprint.org/), two organizations where students apply their skills (technical or otherwise) to make a tangible impact on charitites and non-profit organizations. 
 
