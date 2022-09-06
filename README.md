@@ -21,7 +21,7 @@ We'll be great friends if you're  kind, ambitious, and nerdy (in that order).
 🤓  Finally, nothing beats the thrill of learning something new, whether that be related to software, policy, design, or weird historical facts. Very succeptible to a good old fashioned [nerd snipe](https://www.urbandictionary.com/define.php?term=nerd-snipe).
 
 ### Connect with me! :iphone:
-[Website](https://jossportfolio.web.app)  |  [Linkedin](https://www.linkedin.com/in/jmurphyy/)  |  [Email](mailto:jocelynemurphy@gmail.com)
+[Website](https://jocelynemurphy.github.io)  |  [Linkedin](https://www.linkedin.com/in/jmurphyy/)  |  [Email](mailto:jocelynemurphy@gmail.com)
 
 
 
