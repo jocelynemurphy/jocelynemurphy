@@ -7,9 +7,9 @@ Now that we're both here, welcome!
 We'll be great friends if you're  kind, ambitious, and nerdy (in that order).
 
 ### Currently, 
-* On the job hunt! Looking for  Winter 2023 software development & product management internships at mission-driven companies. 
+* Building digital infrastructure to support car-free living as a Product Management Intern at [Culdesac](https://culdesac.com/)!
 
-* Starting my 2B term of [Systems Design Engineering](http://ugradcalendar.uwaterloo.ca/page/ENG-Systems-Design-Engineering) at the [University of Waterloo](https://uwaterloo.ca/).
+* On the job hunt! Looking for  Fall 2023 software development & product management internships at mission-driven companies. 
 
 * Building community at [UW Startups](https://www.instagram.com/uwstartups/) & sourcing companies as a Venture Partner with [Contrary Capital](https://contrary.com/). 
 
